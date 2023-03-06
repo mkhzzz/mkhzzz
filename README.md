@@ -1,1 +1,1 @@
-fking tired (i like shima enaga btw)
+i like shima enaga
